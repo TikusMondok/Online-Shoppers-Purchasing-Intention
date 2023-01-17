@@ -1,1 +1,1 @@
-# Online-Shoppers-Purchasing-Intention
+# Online Shoppers Purchasing Intention
